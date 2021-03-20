@@ -1,0 +1,5 @@
+-  Hello, Im @Beta-Y3N
+-  I am working on G--Scripts, on making repositorys.
+-  I am soon going to GS-- WL
+-  In General I like scripting.
+-  New README.md files w/ Jyykel is interesting.
